@@ -1,2 +1,3 @@
 # KidAndCoeSwaanResidence.github.io
-KidAndCoeSwaanResidence
+Camras found at the KidAndCoe The Swaan Residence
+Apartment 4 / 816 Broadway New York, New York.
